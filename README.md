@@ -19,7 +19,7 @@ I love learning new technologies and exploring CS topics in my free time. <br/>
 
 - 📫 How to reach me - **stav.gr8@gmail.com**
 
-- ⚡ Fun fact **I like heading to the gym **
+- ⚡ Fun fact - **I like heading to the gym**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
